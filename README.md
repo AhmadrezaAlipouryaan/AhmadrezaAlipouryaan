@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ahmadreza Alipouryaan
+- 👀 I’m interested in Linux, Graphics, Games and Programming.
+- 🌱 I’m currently learning Premiere
+- 💞️ I’m looking to collaborate on Linux
+- 📫 How to reach me t.me/cat_gorbe
